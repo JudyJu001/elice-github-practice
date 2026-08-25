@@ -1,1 +1,0 @@
-# elice-github-practice
